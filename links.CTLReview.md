@@ -1,1 +1,0 @@
-https://www.aboutchromebooks.com/reviews/ctl-chromebook-px14ex-review-all-a-student-needs/
