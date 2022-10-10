@@ -1,0 +1,1 @@
+https://www.aboutchromebooks.com/news/lenovo-duet-5-chromebook-price-sale/
